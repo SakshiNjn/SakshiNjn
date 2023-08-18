@@ -1,0 +1,5 @@
+- Hi, I’m Sakshi Najan
+- Currently persuing Sem V of Computer science undergraduation. 
+- Fresher, curious, eager to learn and explore new things
+- Thanks for taking interest in me and my projects.
+- stay tuned you wont be dissapointed.
